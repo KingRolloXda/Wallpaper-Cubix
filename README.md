@@ -1,2 +1,2 @@
 # Wallpaper-Cubix
-Wallpaper for Cubix
+ Wallpaper for Cubix
